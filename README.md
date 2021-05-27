@@ -1,0 +1,2 @@
+# Minyuor-Pernik
+Minyuori 
